@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Big talk. **SPEEDBOAT** Pray to god I dont get *repo* 
